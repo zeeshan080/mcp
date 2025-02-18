@@ -1,1 +1,0 @@
-C:\Users\dell\AppData\Roaming\Claude
